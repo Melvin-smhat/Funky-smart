@@ -5,7 +5,7 @@
 - 📫 How to reach me ..... Contact me on 08117217515
 - And you can chat me via LinkedIn @ Enoch Ifeoluwa
 - Email: ifeoluwaenoch9@gmail.com 
-- And my twitter handle is @funky_1000
+- And my twitter handle is @D_great_MEL
 
 <!---
 Funky-smart/Funky-smart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
